@@ -1,2 +1,1 @@
-# Super-gabut
-Zar
+https://nasrullah69.github.io/ForZaritaa/
